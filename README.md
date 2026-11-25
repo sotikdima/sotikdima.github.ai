@@ -1,1 +1,0 @@
-# sotikdima.github.ai
